@@ -74,7 +74,8 @@
 
 ## 📫 Connect With Me
 
-💌 Email: your-email@example.com
+💌 Email: thrivenishankar10@gmail.com 
+🖇️ LinkedIn:   https://www.linkedin.com/in/thriveni-k-bb5a14325
 
 🌐 GitHub: https://github.com/thrivenik13
 
